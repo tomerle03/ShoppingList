@@ -1,2 +1,0 @@
-# aneagoie.github.io
-# ShoppingList
